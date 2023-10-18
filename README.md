@@ -2,9 +2,9 @@
 
 Whaticket SaaS - Visão Geral > https://youtu.be/zZvkGkX4OpU
 
-Whaticket SaaS - Auto Instalador > https://youtu.be/UnB4P484UfQ
+Whaticket SaaS - Auto Instalador > Incluído 🌟🔄
 
-Whaticket SaaS - Código Fonte > https://youtu.be/u8iEhSW_SfE
+Whaticket SaaS - Código Fonte > Incluído 🌟🔄
 
 ## 🇧🇷 Português
 
@@ -17,11 +17,10 @@ Oferecemos uma solução completa para instalar o Whaticket SaaS para múltiplas
 - 📦 Instalação fácil e rápida
 - 🏢 Suporte para múltiplas empresas
 - 🛡️ Segurança reforçada
-- 🔄 Atualizações automáticas
 
 ### 💰 Oferta Especial
 
-**Contate-me no WhatsApp [+5521971532700](https://wa.me/5521971532700) para uma instalação e implementação impecáveis!**
+**Contate-me no WhatsApp [+5585998214849](https://wa.me/5585998214849) para uma instalação e implementação impecável!**
 
 ---
 
@@ -36,11 +35,10 @@ We offer a complete solution for installing Whaticket SaaS for multiple companie
 - 📦 Easy and quick installation
 - 🏢 Support for multiple companies
 - 🛡️ Enhanced security
-- 🔄 Automatic updates
 
 ### 💰 Special Offer
 
-**Contact me on WhatsApp [+5521971532700](https://wa.me/5521971532700) for flawless installation and implementation!**
+**Contact me on WhatsApp [+5585998214849](https://wa.me/5585998214849) for flawless installation and implementation!**
 
 ---
 
@@ -55,11 +53,10 @@ We offer a complete solution for installing Whaticket SaaS for multiple companie
 - 📦 Instalación fácil y rápida
 - 🏢 Soporte para múltiples empresas
 - 🛡️ Seguridad mejorada
-- 🔄 Actualizaciones automáticas
 
 ### 💰 Oferta Especial
 
-**¡Contáctame en WhatsApp [+5521971532700](https://wa.me/5521971532700) para una instalación e implementación impecables!**
+**¡Contáctame en WhatsApp [+5585998214849](https://wa.me/5585998214849) para una instalación e implementación impecable!**
 
 ---
 
